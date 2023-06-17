@@ -8,6 +8,4 @@
 
 📄 Know about my experiences HERE - My Portfolio Website
 
-📫 Reach out to me at omrajatwork@gmail.com
-
 ⚡ Fun fact I love teaching
